@@ -1,3 +1,5 @@
+
+![dot2023_1016_0727_06](https://github.com/Themimic0552/Themimic0552/assets/160075918/bbf47be7-c8ee-4289-b814-63875fb93a8f)
 The mimic 0552
 - 👋 Hi, I’m @Themimic0552
 - 👀 I’m interested in ...
